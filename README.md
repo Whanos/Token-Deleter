@@ -2,5 +2,7 @@
 
 # If you find your token here, consider it invalidated. You're welcome. Don't post it online.
 
+Or maybe you're just a skid.
+
 # Complaints
 Discord: https://discord.gg/xSX8ma2t9f
