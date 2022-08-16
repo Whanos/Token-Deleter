@@ -5,4 +5,4 @@
 Or maybe you're just a skid.
 
 # Complaints
-Discord: https://discord.gg/xSX8ma2t9f
+Discord: Whanos#0621
